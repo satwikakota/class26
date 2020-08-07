@@ -1,0 +1,3 @@
+# Recipe: 
+# 1. Whisk together the cream, milk, sugar, salt, and vanilla. Pour the mixture into your ice cream maker and freeze according to the manufacturer's directions. While the ice cream is churning, chop each cookie into 4 pieces.
+# 2. Scatter 1 cup of cookie pieces in the bottom of a freezer safe container. When the ice cream has finished churning, scoop half the ice cream over the cookies in the container, sprinkle the ice cream with 1 cup of cookie pieces. Spread the ice cream across the container and top with the remaining cup of cookie pieces. Freeze until firm. Enjoy!
